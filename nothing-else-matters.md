@@ -1,5 +1,5 @@
-Nothing Else Matters
-Metallica
+# Nothing Else Matters - Metallica - Metallica
+
 ```
 Tuning: Eb Ab Db Gb Bb Eb 
 

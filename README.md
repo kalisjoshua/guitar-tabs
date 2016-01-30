@@ -11,13 +11,16 @@ Songs I would like to learn.
   8. I Stay Away - Alice In Chains
   9. Don't Follow - Alice In Chains
   10. Redemption Song - Bob Marley & The Wailers
-  11. 
+  11. Hurt - Johnny Cash (Nine Inch Nails)
   12. Sweet Jane - Cowboy Junkies
+  13. Road Trippin' - Red Hot Chili Peppers
+  14. 
   
 ... eventually maybe:
 
   + Chan Chan - Buena Vista Social Club
   + The Psychic - Crash Test Dummies
+  + Hotel California - The Eagles
   + Don't Cry - Guns N' Roses
   + Patience - Guns N' Roses
   + Civil War - Guns N' Roses

@@ -37,3 +37,5 @@ Songs I would like to learn.
 ... in my dreams:
 
   + Thunderstruck - AC/DC
+
+Some others - http://www.guitarhabits.com/top-30-easy-guitar-chord-songs-beginners/

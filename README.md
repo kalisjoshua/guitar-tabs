@@ -33,6 +33,7 @@ Songs I would like to learn.
   + Landslide - Fleetwood Mac
   + Hells Bells - AC/DC
   + Fortunate Son - Creedence Clearwater Revival
+  + Me and Julio Down By the Schoolyard - Paul Simon
   
 ... in my dreams:
 
